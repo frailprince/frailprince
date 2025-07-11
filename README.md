@@ -8,4 +8,4 @@ fixated on alnst save me </p>
 <p text align=center> severe social anxiety pls int first </p>
 
 <p text align=center>
-<image src=https://files.catbox.moe/aasqf7.png width=426 height=240> <image src=https://files.catbox.moe/b1pk7n.png width=426 height=240> <image src=https://files.catbox.moe/2ug3r4.png width=426 height=240> </p>
+<image src=https://files.catbox.moe/k4ra1m.png> <image src=https://files.catbox.moe/cynf91.png> <image src=https://files.catbox.moe/zb59qp.png> </p>
